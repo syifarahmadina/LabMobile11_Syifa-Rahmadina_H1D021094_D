@@ -1,4 +1,4 @@
-![Screenshot (4269)](https://github.com/user-attachments/assets/a73c1cfc-e728-4d3a-97d0-c7ff4c7b9a07)Nama  : Syifa Rahmadina
+Nama  : Syifa Rahmadina
 
 NIM   : H1D021094
 
